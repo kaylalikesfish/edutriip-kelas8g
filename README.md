@@ -1,0 +1,1 @@
+# edutriip-kelas8g
